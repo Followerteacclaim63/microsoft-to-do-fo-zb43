@@ -1,4 +1,4 @@
-#  
+#  Microsoft To Do for macOS secure Extension: goal tracking & dark mode is the best Microsoft To Do for macOS extension, featuring goal tracking and dark mode. Safe, efficient, and
 
 
 
